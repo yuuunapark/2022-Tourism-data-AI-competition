@@ -1,0 +1,1 @@
+# 2022-Tourism-data-AI-competition
